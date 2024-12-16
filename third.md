@@ -1,0 +1,1 @@
+ika tulo ayaw nako pa labda
